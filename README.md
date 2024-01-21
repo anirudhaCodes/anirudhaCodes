@@ -4,4 +4,4 @@
      anirudhaweb3@gmail.com
 
 
-# MainGithub Account : [anirudha619](https://github.com/anirudha619)
+# Main Github Account : [anirudha619](https://github.com/anirudha619)
